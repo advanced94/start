@@ -1,5 +1,5 @@
-# these are the links...
-https://advanced94.github.io/6-or-7/
+# these are the links
+my personal favourite -https://advanced94.github.io/free/
 
 
 https://advanced94.github.io/vanish/
@@ -7,5 +7,5 @@ https://advanced94.github.io/vanish/
 
 The og site - https://advanced94.github.io/page/#home
 
-also pls do this form for new website link names also for reporting broken sites [i can tell if anyone is spamming and i can perma ban them from the form] 
+also pls do this form for new website link names also for reporting broken sites [don't be that guy who is just going to spam]
 https://forms.gle/ebifwYjEwkha9gZn9
