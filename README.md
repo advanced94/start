@@ -8,7 +8,7 @@ https://advanced94.github.io/vanish/
 https://advanced94.github.io/fire/
 
 
-https://advanced94.github.io/crimson/
+https://advanced94.github.io/crimson/ [broken😭]
 
 
 The og site - https://advanced94.github.io/page/#home
