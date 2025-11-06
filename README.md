@@ -13,5 +13,4 @@ https://advanced94.github.io/crimson/ [broken😭]
 
 The og site - https://advanced94.github.io/page/#home
 
-also pls do this form for new website link names also for reporting broken sites [don't be that guy who is just going to spam]
-https://forms.gle/ebifwYjEwkha9gZn9
+https://drive.google.com/drive/folders/1zfSrf55xg53CyEXd_vfvYE4xb5RhI322?usp=sharing [not working microsoft forms]
